@@ -1,2 +1,2 @@
 # Data-Analyst
-I am very interested in data and a fan of visualization.
+I am very interested in data and a fan of visualization. Starting to look for a role in the information technology industry. As a computer science major. An AI Machine Learning Data Science Enthusiast . I am highly motivated to continuously develop myself with skills and grow professionally. I am confident in my ability to generate interesting ideas and innovations. Keep Learning and Never Stop Learning !
